@@ -1,1 +1,1 @@
-# Exata-Avalia-es-e-Per-cias
+# ExataAVP
